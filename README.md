@@ -1,0 +1,1 @@
+"I am Poor!" - The app idea is in making app that opposite to "I am Rich!"
